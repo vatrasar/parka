@@ -1,5 +1,8 @@
 # parka
 alicja kmieć jest piekna]'
 '
-'kkjkj
-l'ooooo
+'
+l'
+
+
+worek na smieci
