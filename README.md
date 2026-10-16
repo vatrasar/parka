@@ -1,2 +1,5 @@
 # parka
-alicja kmieć jest piekna
+alicja kmieć jest piekna]'
+'
+'
+l'
