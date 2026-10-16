@@ -1,5 +1,5 @@
 # parka
 alicja kmieć jest piekna]'
 '
-'
-l'
+'kkjkj
+l'ooooo
