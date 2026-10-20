@@ -10,3 +10,4 @@ nie wiem co nam zrobili
 ale wiem ze nie chce zeby to robili
 
 albus dumbledor
+alicja kmiec
